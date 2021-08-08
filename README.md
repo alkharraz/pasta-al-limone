@@ -5,7 +5,7 @@ It's midweek and you are feeling down? :(
 
 There isn't a better way of comfrorting yourself with a nice warm bowl of aromatic pasta dish that is creamy, luscious & absolutely delicious! You get a big delight, in every bite!
 
-The best part is it doen not take time to do! 
+The best part is it does not take time to do! 
 
 Now here is what you need
 
