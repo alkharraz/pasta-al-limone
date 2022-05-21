@@ -1,7 +1,7 @@
 ### Pasta Al Limone Recipe 
 =============================
 
-It's midweek and you are feeling down? :( 
+It's midweek and you are feeling down?
 
 There isn't a better way of comfrorting yourself with a nice warm bowl of aromatic pasta dish that is creamy, luscious & absolutely delicious! You get a big delight, in every bite!
 
